@@ -1,5 +1,4 @@
-https://rr.noordstar.me/1787059f
-sus
+aeiou
 
 
 
